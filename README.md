@@ -27,7 +27,7 @@ insert more text
 ![tumblr_8f9020468dc895e028b97138acb71b2a_0bb2cefc_400](https://github.com/user-attachments/assets/a2893053-6e0e-4569-a296-7377cfa36d13)
 
 
-$\Large\color{#5c2323}{\textsf{"-insert quote 3 here-"}}$
+$\Large\color{#5c2323}{\textsf{"-When you guys lost Jett... I seriously thought you were gonna off yourself, all right?"}}$
 
 insert more text
 
