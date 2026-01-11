@@ -1,5 +1,11 @@
 ## about.
 
+
+<img width="140" src="https://komarev.com/ghpvc/?username=fourthdoctor&color=f5ea53" alt="wins"> 
+
+<h1 align="center">
+
+
 ![tumblr_e6b5004a4c3bacf797711e9299e26104_abe18ec1_400](https://github.com/user-attachments/assets/36a39061-a9ec-48e0-aa61-836d0a29576b)
 
 $\Large\color{#635148}{\textsf{"You could be whoever, whatever you want to be, even someone good!-"}}$
