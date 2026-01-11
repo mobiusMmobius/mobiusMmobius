@@ -35,7 +35,7 @@ insert more text
 ![tumblr_3b741c32408f0f876aaed65b47e5503d_35076a7b_400](https://github.com/user-attachments/assets/74c1d426-62db-4d21-84cf-8e9c97c4327c)
 
 
-$\Large\color{#5c2323}{\textsf{"-insert final quote here-"}}$
+$\Large\color{#918754}{\textsf{"I-I think I'll just wait here... let time pass."}}$
 
 
 insert text
