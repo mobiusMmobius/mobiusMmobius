@@ -17,7 +17,7 @@ $\small\color{#e8dc80}{\textsf{My pronouns consistantly stay masculine, any femi
 
 ![tumblr_3f6159aa0b82e2cee3dabc2f6a76f8f5_6f14a870_400](https://github.com/user-attachments/assets/08c46523-b912-4cf3-977d-a62ff47a3bd6)
 
-$\Large\color{#34b1eb}{\textsf{"-Our march towards greatness begins today! - Not a movie, just me talking, see you tomorrow!"}}$
+$\Large\color{#5c2323}{\textsf{"yea, uh- his name was jett, and uh... he died of cancer, when he was four..."}}$
 
 
 $\small\color{#e8dc80}{\textsf{If you couldn’t tell, I am a fictkin! I represent myself in the characters that I kin, and in some form or way believe I am some, or just heavily relate to others.}}$
