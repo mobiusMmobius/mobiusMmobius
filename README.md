@@ -1,5 +1,4 @@
-## working on...
-
+## about.
 
 ![tumblr_e6b5004a4c3bacf797711e9299e26104_abe18ec1_400](https://github.com/user-attachments/assets/36a39061-a9ec-48e0-aa61-836d0a29576b)
 
