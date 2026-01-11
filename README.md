@@ -50,4 +50,5 @@ $\Large\color{#918754}{\textsf{"I-I think I'll just wait here... let time pass."
 
 $\small\color{#e8dc80}{\textsf{Thank you for taking your time, and spending some time learning about me, anymore general facts, or any interests are contained on my pronouns.cc and strawpage.}}$
 
-insert hyper links
+[Guns.lol](https://guns.lol/w1lz0/)          ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـﮩ٨ـ           [strawpage](https://mobiusmmobius.straw.page/) 
+
