@@ -52,7 +52,7 @@ $\small\color{#e8dc80}{\textsf{I AM undiagnosed, I do NOT care if you believe if
 ![tumblr_3b741c32408f0f876aaed65b47e5503d_35076a7b_400](https://github.com/user-attachments/assets/74c1d426-62db-4d21-84cf-8e9c97c4327c)
 
 
-$\Large\color{#918754}{\textsf{"I-I think I'll just wait here... let time pass."}}$
+$\Large\color{#635148}{\textsf{"I-I think I'll just wait here... let time pass."}}$
 
 $\small\color{#e8dc80}{\textsf{Thank you for taking your time, and spending some time learning about me, anymore general facts, or any interests are contained on my pronouns.cc and strawpage.}}$
 
