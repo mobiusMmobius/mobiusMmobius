@@ -44,10 +44,11 @@ $\small\color{#e8dc80}{\textsf{I love listening, I’m not much of a talker when
 
 $\small\color{#e8dc80}{\textsf{I do tend to have mood swings, but not too often, they tend to be depressive and I start to distance myself off, but I also do have severe anger issues!}}$
 
-$\small\color{#e8dc80}{\textsf{I also have slight adandonment issues, and I am absolutely petrified to scare people off, or have them leave me, so I tend to be very clingy, specially if I get close to someone.}}$
+$\small\color{#e8dc80}{\textsf{I also have slight adandonment issues, and I am absolutely petrified to scare people off, or have them leave me, so I tend to be very clingy,}}$
+
+$\small\color{#e8dc80}{\textsf{specially if I get close to someone.}}$
 
 $\small\color{#e8dc80}{\textsf{I AM undiagnosed, I do NOT care if you believe if I have autism, or adhd, I will find out on my own and do not wish for your input on that topic, thank you.}}$
-
 
 ![tumblr_3b741c32408f0f876aaed65b47e5503d_35076a7b_400](https://github.com/user-attachments/assets/74c1d426-62db-4d21-84cf-8e9c97c4327c)
 
