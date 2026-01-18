@@ -40,6 +40,9 @@ $\Large\color{#5c2323}{\textsf{"-When you guys lost Jett... I seriously thought 
 
 $\small\color{#e8dc80}{\textsf{c+h is always welcome, specially when I am alone unless stated otherwise.}}$
 
+$\small\color{#e8dc80}{\textsf{I do not enjoy being covered, I allow friends to do it, otherwise I do not like it unless I hide behind you specifically.}}$
+
+
 $\small\color{#e8dc80}{\textsf{I love listening, I’m not much of a talker when it comes down to not knowing people but I will gladly listen, but that doesn’t mean I will ask questions.}}$
 
 $\small\color{#e8dc80}{\textsf{I do tend to have mood swings, but not too often, they tend to be depressive and I start to distance myself off, but I also do have severe anger issues!}}$
