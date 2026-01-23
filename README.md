@@ -21,7 +21,7 @@ $\small\color{#e8dc80}{\textsf{my name is will, mobius, pryce, or the doctor!}}$
 
 $\small\color{#e8dc80}{\textsf{My pronouns consistantly stay masculine, any feminine terms will be called out, and I will state that I am uncomfortable.}}$
 
-$\small\color{#decda0}{\textsf{My birthday is January 26th, any birthday wishes are appreciated even if I dont celebrate it! :p}}$
+$\small\color{#9dedc5}{\textsf{My birthday is January 26th, any birthday wishes are appreciated even if I dont celebrate it! :p}}$
 
 
 
