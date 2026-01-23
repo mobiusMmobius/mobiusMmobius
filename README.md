@@ -14,11 +14,15 @@ $\Large\color{#635148}{\textsf{"You could be whoever, whatever you want to be, e
 $\Large\color{#635148}{\textsf{"-..I mean, just in case anyone ever told you different."}}$
 
 
+
 $\small\color{#e8dc80}{\textsf{hellooo!}}$
 
 $\small\color{#e8dc80}{\textsf{my name is will, mobius, pryce, or the doctor!}}$
 
 $\small\color{#e8dc80}{\textsf{My pronouns consistantly stay masculine, any feminine terms will be called out, and I will state that I am uncomfortable.}}$
+
+$\small\color{#decda0}{\textsf{My birthday is January 26th, any birthday wishes are appreciated even if I dont celebrate it! :p}}$
+
 
 
 ![tumblr_3f6159aa0b82e2cee3dabc2f6a76f8f5_6f14a870_400](https://github.com/user-attachments/assets/08c46523-b912-4cf3-977d-a62ff47a3bd6)
