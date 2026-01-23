@@ -37,6 +37,8 @@ $\small\color{#e8dc80}{\textsf{due to that being the case, I encourage the lack 
 
 $\small\color{#e8dc80}{\textsf{The only exception I have for that, is being friends, no other exceptions, once again unless stated other wise.}}$
 
+$\small\color{#e8dc80}{\textsf{I try not to be hostile, but at time I am with doubles. Mainly with my heavy kins, no offense I'm sorry in advance if it does happen!}}$
+
 ![tumblr_8f9020468dc895e028b97138acb71b2a_0bb2cefc_400](https://github.com/user-attachments/assets/a2893053-6e0e-4569-a296-7377cfa36d13)
 
 
